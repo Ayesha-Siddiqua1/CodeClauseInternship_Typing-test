@@ -1,0 +1,1 @@
+# CodeClauseInternship_Typing-test
